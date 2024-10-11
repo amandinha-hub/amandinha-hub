@@ -1,2 +1,2 @@
 Amanda Resende 🤡
-Estudante do alura
+Estudante 
