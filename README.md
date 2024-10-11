@@ -1,2 +1,2 @@
-Amanda Resende 
+Amanda Resende  🤡
 Estudante 
