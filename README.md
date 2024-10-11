@@ -1,5 +1,7 @@
 Amanda Resende  🤡
-Estudante 
+
+Estudante Colégio estadual Padre Cláudio Morelli 
+
 email:amanda.resende.andrae@escola.pr.gov.br
-Colégio estadual Padre Cláudio Morelli 
+
 Hobbie: jogar volêi 🏐
